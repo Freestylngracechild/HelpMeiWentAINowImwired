@@ -1,1 +1,2 @@
 # HelpMeiWentAINowImwired
+bduuvevhdjdidjnskkbdkjbebgsgsygsvsks NC e chi idjnfb
